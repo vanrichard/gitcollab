@@ -1,0 +1,3 @@
+## Weekend Plans
+
+Get LIT.
