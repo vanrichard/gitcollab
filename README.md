@@ -3,4 +3,5 @@
 Get LIT.
 Sleep.
 Dog sit.
-Movie night
+Movie night.
+Picnic Day.
